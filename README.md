@@ -1,10 +1,1 @@
 # SIFAT -EID-Salami
-
-
-
-
-
-
-
-
-
